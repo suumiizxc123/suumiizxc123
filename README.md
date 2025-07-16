@@ -40,7 +40,7 @@ Check out my coding journey and contributions!
 ## 🤝 Connect with Me
 
 - **GitHub**: [suumiizxc123](https://github.com/suumiizxc123)
-- **Email**: suumiizxc@gmail.com
+- **Email**: [suumiizxc@gmail.com](https://mail.google.com/mail/?view=cm&fs=1&to=suumiizxc@gmail.com)
 
 ---
 
